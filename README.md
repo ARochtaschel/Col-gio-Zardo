@@ -1,1 +1,1 @@
-# Col-gio-Zardo
+# Colégio-Zardo
